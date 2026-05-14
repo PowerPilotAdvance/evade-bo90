@@ -1,4 +1,4 @@
-
+Get ahead in evade with automatic Script for evade, featuring auto-collect and no clip. Download now to dominate every match with ease and confidence, thanks to its advanced and
 
 
 
